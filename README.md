@@ -1,11 +1,11 @@
-# Masline-ElectroMechanical-Parts-Electronic-Components-Electronic-Components-Distributor
+# Masline | ElectroMechanical Parts | Electronic Components | Electronic Components Distributor
 Masline Electronics is a trusted electronic components distributor offering a wide selection of electromechanical parts and electronic components for industrial, commercial, and personal projects.
 
 ---
 
 ##  About Masline Electronics
 
-Masline Electronics has been a trusted name in the world of electronics since 1980. Based in the United States, we specialize in sourcing and delivering a wide variety of **electronic parts**, including both standard and hard-to-find items. 
+Masline Electronics has been a trusted name in the world of electronics since 1980. Based in the United States, we specialize in sourcing and delivering a wide variety of electronic parts, including both standard and hard-to-find items. 
 
 We work with companies of all sizes — from global manufacturers to small businesses, schools, and individual hobbyists. Our mission is to make it easy for you to get high-quality components, quickly and at a fair price.
 
